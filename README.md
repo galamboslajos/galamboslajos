@@ -2,7 +2,7 @@
 - I’m interested in economics and finance. My projects invovle modelling, data analysis and statistics. 
 - I’m currently learning how to make my porjects better by doing better codes, methodology and interpretation.
 
-- 📫 galambos.lajos2000@gmail.com, www.linkedin.com/in/lajosgalambos
+- 📫 info@galamboscapital.com, www.linkedin.com/in/lajosgalambos
 
 
 
